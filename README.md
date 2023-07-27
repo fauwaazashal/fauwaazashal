@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **fauwaazashal@gmail.com**
 
-- 📄 Know about my experiences [[https://www.dropbox.com/s/qznokatpg4iyvjc/Fauwaaz%20Ashal%20-%20Resume%20.pdf?dl=0](https://www.dropbox.com/s/qznokatpg4iyvjc/Fauwaaz%20Ashal%20-%20Resume%20.pdf?dl=0)]
+- 📄 Know about my experiences [https://www.dropbox.com/s/4hqz59n894xnb7n/Fauwaaz%20Ashal%20-%20Resume%20.pdf?dl=0]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
